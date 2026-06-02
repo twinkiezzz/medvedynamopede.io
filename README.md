@@ -1,1 +1,0 @@
-# medvedynamopede.io
